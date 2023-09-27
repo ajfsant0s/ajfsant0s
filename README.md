@@ -7,5 +7,5 @@ Meu nome é Ana Júlia
 **Vem acompanhar uma jovem estudante do estado do Paraná 🫀**
 
 
-![](https://media.tenor.com/9HkzSQ2-aP0AAAAd/taylor-swift.gif)
+![](https://media.tenor.com/R0C_Sa2mtVsAAAAC/taylorswift-taylor.gif)
 
